@@ -18,4 +18,5 @@
 
 Решение 4
 
-![44](https://github.com/user-attachments/assets/3f67c785-08d1-4b21-bcf0-05d190f18ca0)
+![44](https://github.com/user-attachments/assets/2a8355b2-e504-4313-803a-30d227fe34d6)
+
